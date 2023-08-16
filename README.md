@@ -1,6 +1,7 @@
 # dr.realtr
 
 
+![Firefly 3d surreal half human half artificial intelligent empathetic psychotherapist 55895](https://github.com/WakandaCoderAreYou/dr.realtr/assets/37256109/9259cde4-1c2b-4029-a0e5-d7d50afe2c44)
 
 
 
